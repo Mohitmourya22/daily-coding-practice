@@ -32,3 +32,11 @@
 * **Next target: Complete TOC and finish the remaining GATE classes.** 🎯
 
 > **Backlogs cleared. GATE preparation continues. 🚀**
+
+### 🕊️ A Personal Note — 8 October 2026
+
+* After returning from Raipur late in the evening, I visited my Tauji's home following his passing earlier that day.
+* Unfortunately, I couldn't attend his funeral because I was away for the Rojgaar Mela.
+* It was a difficult and emotionally heavy day, balancing career responsibilities with a personal family loss.
+
+**A day I'll always remember — for the opportunities I pursued, and for the goodbye I couldn't be there for.** 🕊️
